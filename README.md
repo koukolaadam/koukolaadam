@@ -1,4 +1,4 @@
 -  🙇‍♂️ Hi, I'am @koukolaadam
 -  🕹 (Beginning) Front-end Developer
--  🎨 (UX/UI/Product) Designer
+-  🎨 (Product/Graphic/Brand) Designer
 -  ☕️ Coffee Lover
